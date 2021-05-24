@@ -1,2 +1,0 @@
-# native
-Salon stylizacji paznokci
